@@ -5,3 +5,5 @@
 ----------------------------------------------------------------------
 ![TRANG CHỦ](https://github.com/user-attachments/assets/101efbc7-4adc-47e8-be3c-4fd51cd81764) ![University West](https://github.com/user-attachments/assets/6589e982-83c0-4ba2-8c90-6f00665741e0)
 
+![ADMIN - 1](https://github.com/user-attachments/assets/60eddbd7-8ebc-4b92-9a2f-988d5efae669)
+![ADMIn - 2](https://github.com/user-attachments/assets/b29f3151-4ae8-441e-8667-69dc8212a54f)
